@@ -1,1 +1,1 @@
-Hello, Dumb Crap. This is a fricking coronavirus information website. This is in construction so get the hell out of here
+Hello, Dummy. This is a Weird coronavirus information website. This is in construction so get out of here
